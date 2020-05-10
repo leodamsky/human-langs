@@ -214,4 +214,13 @@ Linda would've swayed him
 
 There is not better way to overcome a trickle of doublt, than with a flood of naked truth.
 Нет лучшего способа преодолеть струйку сомнения, чем поток голой правды.
+
+corkscrew
+штопор
+
+it was intense
+это было интенсивно
+
+a cockroach
+таракан
 ```
